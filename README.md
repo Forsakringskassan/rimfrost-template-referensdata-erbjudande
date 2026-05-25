@@ -1,0 +1,1 @@
+# rimfrost-template-referensdata-erbjudande
